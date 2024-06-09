@@ -1,4 +1,4 @@
 
 <p align="center">
-<img src="https://media.discordapp.net/attachments/823155496621178880/1249274700144705588/Untitled234_20240609101125.png?ex=6666b53a&is=666563ba&hm=d1d5fd1a05ab3cc72441511b732d0365232e9f0c2ebc626f8422df1f3da4b7d8&=&format=webp&quality=lossless&width=593&height=593"/>
+<img src="https://media.discordapp.net/attachments/823155496621178880/1249292129868578826/Untitled234_20240609112041.png?ex=6666c576&is=666573f6&hm=93417498581cb02f646490e98c8eebf63b8197288e14ff1c13093d08d5990734&=&format=webp&quality=lossless&width=593&height=593"/>
 </p>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
